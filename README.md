@@ -1,1 +1,0 @@
-# polydiver-terms-and-conditions
